@@ -1,6 +1,6 @@
 [![Deep Maruhara](https://i.pinimg.com/originals/ce/4b/26/ce4b26b4c84c138006add608f6650840.jpg "Header")](https://github.com/Maruhara18774)
 ## Who am I?
-**I'm a unique people in the world.**
+**I'm a unique person in the world.**
 You can call me by **Linh Mac/ Mona**.
 
 ## Overall assessment
